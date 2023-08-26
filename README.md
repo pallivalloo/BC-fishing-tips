@@ -9,3 +9,9 @@
 - Хороший рыболовный магазин - https://maps.app.goo.gl/gAT3TeN3U1hnaTb58
 - Сайт с описаниями рыболовных мест и прочей полезной информацией по рыбалке в Британской Колумбии - https://www.fishingwithrod.com/articles/region_two/index.html
 - Рыболовная группа Альберты - https://t.me/fishing_alberta 
+
+**Где ловить:**
+
+- Furry creek, лосось (tidal) - https://maps.google.com/?cid=985765385271365486&entry=gps
+- Buntzen lake, форель, pikeminnow (freshwater) - https://goo.gl/maps/VPRxB5LtcngtQkML8
+- Ambleside beach, лосось (tidal) - https://goo.gl/maps/Zjh8FFdbu7WWzdCi6
