@@ -7,6 +7,7 @@
 **Полезные ссылки:**
 - Купить лицензию в BC (Пресная вода\freshwater) - https://www2.gov.bc.ca/gov/content/sports-culture/recreation/fishing-hunting/fishing/recreational-freshwater-fishing-licence
 - Купить лицензию в BC (Прибрежная зона и океан\tidal) - https://recfish-pechesportive.dfo-mpo.gc.ca/nrls-sndpp/index-eng.cfm
+- Сайт где публикуют данные об открытии сезона рыбалки на лосося - https://notices.dfo-mpo.gc.ca/fns-sap/index-eng.cfm?Count=1&pg=search_results&ID=all&year=2023&fbclid=IwAR2hPhQJYxkBxCxwBw0DCcwj8ec5ULZEWjuGxgsNbdh2v1adSqeRQe9Lufo
 - Виды лосося - https://www.pac.dfo-mpo.gc.ca/fm-gp/rec/identify-identifier-eng.html
 - Приложение для приливов\отливов - https://www.tideschart.com/Canada/British-Columbia/Metro-Vancouver-Regional-District/White-Rock/
 - Хороший рыболовный магазин - https://maps.app.goo.gl/gAT3TeN3U1hnaTb58
