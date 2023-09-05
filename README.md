@@ -22,3 +22,5 @@
 - Furry creek, лосось (tidal) - https://maps.google.com/?cid=985765385271365486&entry=gps
 - Buntzen lake, форель, pikeminnow (freshwater) - https://goo.gl/maps/VPRxB5LtcngtQkML8
 - Ambleside beach, лосось (tidal) - https://goo.gl/maps/Zjh8FFdbu7WWzdCi6
+- Dyke rd. Richmond, Fraser river лосось  (tidal) - https://goo.gl/maps/MpiSeZ2gTLFq3PZv5
+- Aberdeen Richmond, Fraser river лосось  (tidal) - https://goo.gl/maps/KY6kbV48Gn6b4Gny5
