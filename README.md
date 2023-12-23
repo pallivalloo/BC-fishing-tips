@@ -9,6 +9,7 @@
 - Купить лицензию в BC (Прибрежная зона и океан\tidal) - https://recfish-pechesportive.dfo-mpo.gc.ca/nrls-sndpp/index-eng.cfm
 - Сайт где публикуют данные об открытии сезона рыбалки на лосося - https://notices.dfo-mpo.gc.ca/fns-sap/index-eng.cfm?Count=1&pg=search_results&ID=all&year=2023&fbclid=IwAR2hPhQJYxkBxCxwBw0DCcwj8ec5ULZEWjuGxgsNbdh2v1adSqeRQe9Lufo
 - Виды лосося - https://www.pac.dfo-mpo.gc.ca/fm-gp/rec/identify-identifier-eng.html
+- Рыболовный магазин участника группы - https://go-fishing.ca/
 - Приложение для приливов\отливов - https://www.tideschart.com/Canada/British-Columbia/Metro-Vancouver-Regional-District/White-Rock/
 - Хороший рыболовный магазин - https://maps.app.goo.gl/gAT3TeN3U1hnaTb58
 - Сайт с описаниями рыболовных мест и прочей полезной информацией по рыбалке в Британской Колумбии - https://www.fishingwithrod.com/articles/region_two/index.html
